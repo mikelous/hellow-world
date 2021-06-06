@@ -3,4 +3,6 @@
 
                                      Learning github
 I am a courious engineer that plays and want to understand some programs to create and understand some crypto apss.
-I love learnning   "Hex to the moon"
+I love learnning   "Hex to the MOON"  
+
+                                        LOVING PULSE CHAIN
